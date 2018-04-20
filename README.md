@@ -1,3 +1,3 @@
 # thesis_code
 
-Under construction
+Coming soon. Please check back later
